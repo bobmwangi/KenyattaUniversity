@@ -1,2 +1,1 @@
-# KenyattaUniversity
-Kenyatta University
+Kenyatta University png Logo
